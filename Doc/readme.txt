@@ -1,0 +1,1 @@
+https://www.figma.com/file/uDLSwl0tVFFSXAldhpYWf9/Giaodien_CNC?type=design&node-id=215%3A29&mode=design&t=ntF2kvRdXXXx0zQB-1
